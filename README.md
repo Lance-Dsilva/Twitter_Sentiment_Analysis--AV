@@ -123,6 +123,6 @@ Team members-
 			  
               Lance Dsilva - codestacks123@gmail.com
               
-              Nandini yadav - nandini976804@gmail.com: 
+              Novia Dsilva - codestacks123@gmail.com 
 			  
               
